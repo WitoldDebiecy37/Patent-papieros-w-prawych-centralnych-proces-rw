@@ -1,0 +1,1 @@
+# Patent-papieros-w-prawych-centralnych-proces-rw
